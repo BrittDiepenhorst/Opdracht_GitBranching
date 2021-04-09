@@ -1,3 +1,14 @@
+INGREDIENTS
+ 
+25 % Cooked grains
+25 % beans/tofu/tempeh
+15 % cooked veg – include
+15 % raw veg
+5-10 % leafy greens
+5 % herbs and fruit & nuts
+5-10 % dressing and toppings
+
+
 INSTRUCTIONS
  
 #1 Framework method for the grain, bean cooked veg salads.
